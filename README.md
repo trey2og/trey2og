@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @trey2og
-- 👀 I’m interested in ... Gameing
+- 👀 I’m interested in ... Gaming
 - 🌱 I’m currently learning ... How to code
 - 💞️ I’m looking to collaborate on ... Twitch
 - 📫 How to reach me ... domain-wok-plaza@duck.com
